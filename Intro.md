@@ -1,6 +1,6 @@
 # PUBLIC LOGIC
-# makemoney
-The idea behind the publication. Simple and logic. Truthful. Make some money while helpin others. How to do that. By education ma frands.So to speak it is a lot to link about, here you go to chapter for it.
+
+The idea behind the publication is simple and logic. Truthful. Make some money while helpin others and probably myself. How to do that. By education ma frands.So to speak it is a lot to link about, here you go to Education chapter.
 
 
 
